@@ -1,1 +1,1 @@
-how to make readme guys sos
+https://github.com/MuffinHeadtp/muffinz/issues/1
