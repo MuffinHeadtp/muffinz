@@ -1,1 +1,2 @@
-https://github.com/MuffinHeadtp/muffinz/issues/1
+<img width="1378" height="716" alt="Image" src="https://github.com/user-attachments/assets/ae12f17b-a01b-4ca6-938f-2452d82bed95" />
+<img width="1378" height="431" alt="Image" src="https://github.com/user-attachments/assets/1b9a8133-0c9d-45b0-8ad7-9574c07cbff9" />
